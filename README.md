@@ -1,4 +1,4 @@
-### Olá.. Seja Muito Bem Vindx! 👋
+### Analista de Teste | QA | Qualidade de Software | Quality Assurance | Postman | SQL | Selenium | Java | Git | SoapUI 👋
 
 - 📫 #Autodidatismo
 
